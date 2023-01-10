@@ -1,1 +1,1 @@
-see the link to the [question](https://datalemur.com/questions/teams-power-users)
+> see the link to the [question](https://datalemur.com/questions/teams-power-users)
